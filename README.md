@@ -15,3 +15,6 @@
 - 🍰 i tend to distance myself when im experiencing heavy emotions and will mostly stay around my closest friends ( Pace , Neo , Prowler , Xander )
 
  - 🍓 i am super awkard with new people, i tend to have weird silent moments cuz i literally dont know what to say but ill warm up.
+
+
+<img width="736" height="736" alt="Untitled136_20260120013228" src="https://github.com/user-attachments/assets/09326c86-0ac7-4b2d-ab6f-74e584df98c4" />
