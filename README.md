@@ -16,5 +16,5 @@
 
  - 🍓 i am super awkard with new people, i tend to have weird silent moments cuz i literally dont know what to say but ill warm up.
 
+<img width="736" height="736" alt="Untitled136_20260120013411" src="https://github.com/user-attachments/assets/6a76460e-185f-4643-93aa-4caccfa1edae" />
 
-<img width="736" height="736" alt="Untitled136_20260120013228" src="https://github.com/user-attachments/assets/09326c86-0ac7-4b2d-ab6f-74e584df98c4" />
