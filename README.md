@@ -6,4 +6,12 @@
 
 
 
+- 🍓 i am very unfazed when it comes to int or dni, i tend not to care, cuddling / touching / booping are comfort actions.
 
+- 🍰 c*h freely anytime unless with friends that don't feel comfortable.
+
+- 🍓 i zone out very often, it'll take me a min to realize where i am or what im doing.
+
+- 🍰 i tend to distance myself when im experiencing heavy emotions and will mostly stay around my closest friends ( Pace , Neo , Prowler , Xander )
+
+ - 🍓 i am super awkard with new people, i tend to have weird silent moments cuz i literally dont know what to say but ill warm up.
