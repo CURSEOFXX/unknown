@@ -9,5 +9,6 @@
 
 ![IMG_2571](https://github.com/user-attachments/assets/74f5532b-d965-4af4-afb2-8a152a7243ee)
 
+𝗶 𝗳𝘄 𝘆𝗼𝘂, 𝘂 𝗳𝘄 𝗺𝗲. 𝗶𝗱𝗰 𝗮𝗯𝗼𝘂𝘁 𝗶𝗻𝘁𝘀 𝗼𝗿 𝗱𝗻𝗶𝘀 𝗶𝗺 𝘂𝗻𝗳𝗮𝘇𝗲𝗱
 
 ![IMG_2567](https://github.com/user-attachments/assets/1f292dff-c2c6-4989-ac08-493c0a97509c)
